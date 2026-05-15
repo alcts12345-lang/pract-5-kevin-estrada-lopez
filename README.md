@@ -1,1 +1,0 @@
-# pract-5-kevin-estrada-lopez
